@@ -7,7 +7,7 @@ TNT火箭签到脚本
 
 ### 注册
 
-[tnt官方地址，高速稳定，点击注册](https://www.hjtnt.pro/auth/register?code=hwWF)
+推荐工具：[【稳定，高速梯子推荐56一年，活动时5折，点击直达】](https://www.hjtnt.pro/auth/register?code=hwWF)
 
 每天可签到可获得300-500M流量，基本可以满足每日使用。
 
